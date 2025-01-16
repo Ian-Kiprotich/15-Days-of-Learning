@@ -1,2 +1,2 @@
 This are TVET Documents 
-Find them arraged 
+Copy of the Time Table , Master of Science in IT 
